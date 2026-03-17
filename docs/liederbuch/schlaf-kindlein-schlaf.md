@@ -1,0 +1,36 @@
+# Schlaf, Kindlein, schlaf
+
+## Schlaf, Kindlein, schlaf,
+
+Der Vater hüt die Schaaf,  
+Die Mutter schüttelts Bäumelein,  
+Da fällt herab ein Träumelein,  
+Schlaf, Kindlein, schlaf.
+
+## Schlaf, Kindlein, schlaf,
+
+Am Himmel ziehn die Schaaf,  
+Die Sternlein sind die Lämmerlein,  
+Der Mond der ist das Schäferlein,  
+Schlaf, Kindlein, schlaf.
+
+## Schlaf, Kindlein, schlaf,
+
+Christkindlein hat ein Schaaf,  
+Ist selbst das liebe Gotteslamm,  
+Das um uns all zu Tode kam,  
+Schlaf, Kindlein, schlaf!
+
+## Schlaf, Kindlein, schlaf,
+
+So schenk ich dir ein Schaaf,  
+Mit einer goldnen Schelle fein,  
+Das soll dein Spielgeselle sein,  
+Schlaf, Kindlein, schlaf!
+
+## Schlaf, Kindlein, schlaf,
+
+Geh fort und hüt die Schaaf,  
+Geh fort du schwarzes Hündelein,  
+Und weck mir nicht mein Kindelein,  
+Schlaf, Kindlein, schlaf.
