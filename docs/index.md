@@ -1,4 +1,4 @@
-# Knows by David Härer
+# David Härer
 
 ## What is a bliki?
 
