@@ -1,6 +1,6 @@
 # Gott, dein guter Segen
 
-## 1. Gott, dein guter Segen ist wie ein großes Zelt
+## Gott, dein guter Segen ist wie ein großes Zelt
 
 Hoch und weit, fest gespannt über unsre Welt  
 Guter Gott, ich bitte dich  
@@ -12,7 +12,7 @@ Bleibe bei uns alle Zeit
 Segne uns, segne uns, denn der Weg ist weit  
 Segne uns, segne uns, denn der Weg ist weit
 
-## 2. Gott, dein guter Segen ist wie ein helles Licht
+## Gott, dein guter Segen ist wie ein helles Licht
 
 Leuchtet weit, alle Zeit in der Finsternis  
 Guter Gott, ich bitte dich  
@@ -24,7 +24,7 @@ Bleibe bei uns alle Zeit
 Segne uns, segne uns, denn der Weg ist weit  
 Segne uns, segne uns, denn der Weg ist weit
 
-## 3. Gott, dein guter Segen ist wie des Freundes Hand
+## Gott, dein guter Segen ist wie des Freundes Hand
 
 Die mich hält, die mich führt  
 In ein weites Land  
@@ -37,7 +37,7 @@ Bleibe bei uns alle Zeit
 Segne uns, segne uns, denn der Weg ist weit  
 Segne uns, segne uns, denn der Weg ist weit
 
-## 4. Gott, dein guter Segen ist wie ein weiches Nest
+## Gott, dein guter Segen ist wie ein weiches Nest
 
 Danke Gott, weil du mich heute leben lässt  
 Guter Gott, ich danke dir  
